@@ -3,7 +3,7 @@
 - Call me somm! 🍊
 - First Year IT Student ✨
 
-
+![sick-seven](gif-folder/Soobin%20Hueningkai%20GIF.gif)
 
 
 <!--
