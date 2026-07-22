@@ -1,6 +1,9 @@
 ## Hi there 👋
 
-call me somm!
+- Call me somm! 🍊
+- First Year IT Student ✨
+
+![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMzZlYnVqNXQyaDd5emt1bHhmY2hqYWthcnZ2cWlkbjBsbWJ1djNyNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/15vax1gl36hQSJ5unO/giphy.gif)
 
 
 
