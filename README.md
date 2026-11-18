@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-- Call me somm! 🍊
-- First Year IT Student ✨
+- somm! 🍊
+- pers year student ✨
 
 ![sea-talay](gif-folder/gemfotzzn-sea-talay-cute-gif-gemfotzzn-sea-talay-cute-sea-ta.gif)
 
